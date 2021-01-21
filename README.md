@@ -1,0 +1,1 @@
+"lazarovphoto.com/blog"  
